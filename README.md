@@ -1,3 +1,2 @@
-Studying at University Of Economic and Laws
-Currently studying Digital Business and Artificial Intelligence
+Studying Digital Business and Artificial Intelligence at University Of Economics and Law 
 Collaborator at ITB Club
